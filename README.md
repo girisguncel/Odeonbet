@@ -7,10 +7,10 @@
 <body>
     <h1>Odeonbet Güncel Giriş | En Yeni ve Güvenilir Adres</h1>
     <p>
-        <a href="https://urlgit.com/timebet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
-        <a href="https://urlgit.com/timebet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
-        <a href="https://urlgit.com/timebet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
-        <a href="https://urlgit.com/timebet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a>
+        <a href="https://urlgit.com/odeonbet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
+        <a href="https://urlgit.com/odeonbet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
+        <a href="https://urlgit.com/odeonbet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a><br>
+        <a href="https://urlgit.com/odeonbet-giris">ODEONBET ANINDA HEMEN GİRİŞ İÇİN TIKLAYIN</a>
     </p>
     <h2>Odeonbet Giriş Adresi | En İyi Bahis Deneyimi</h2>
     <p>
